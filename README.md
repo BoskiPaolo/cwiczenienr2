@@ -1,1 +1,0 @@
-# cwiczenienr2
